@@ -1,3 +1,5 @@
+![bri](https://user-images.githubusercontent.com/126193529/221725914-59d5f3f9-ea37-43c0-8a5c-102618fdd89e.png)
+![phone](https://user-images.githubusercontent.com/126193529/221725922-0d4581e1-bd9a-452e-bac0-da39622fba1c.png)
 ![9qO](https://user-images.githubusercontent.com/126193529/221433555-80219096-7319-4f8c-9c16-225b901a5ec2.png)
 ![jOI](https://user-images.githubusercontent.com/126193529/221432889-116fa48f-0401-42b4-9203-8b6580933997.png)
 ![3el](https://user-images.githubusercontent.com/126193529/221432927-8b5b7219-5ac4-46a7-a15d-4fb5e0bdc76d.png)
